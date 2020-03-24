@@ -5,6 +5,6 @@ I believe the Gov will later update the documents in their legal form, but many 
 
 [Updated]
 
-Now originals available in English, too.
+Now originals available in English and Russian, too.
 
 Keep safe!
